@@ -12,4 +12,5 @@ Both proxy & proxyless mode
 
 Preview: https://youtu.be/UQcI81VtjUw?si=UYNqrXQ8nRyFzHwS
 
-- BY cb hub
+- By CB Hub
+- Join https://discord.gg/BS3KMPH8aM to buy or free trial
